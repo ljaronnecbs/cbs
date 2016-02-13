@@ -2,6 +2,6 @@
 
 -  Heat bun
 -  Boil Hot dog
--  Add mustard
+-  Add ketchup
 -  Eat hot dog
 -  Watch the Hoyas
